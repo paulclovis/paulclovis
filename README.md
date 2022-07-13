@@ -11,5 +11,5 @@
 - 🤔 I’m looking for help with ADVICES , COFEE
 - 💬 Ask me about SoftWare Engineering
 - 📫 How to reach me: paulclovis01@gmail.com
-- 😄 Pronouns: HE
+- 😄 Pronouns:  HE
 - ⚡ Fun fact: OUPS
